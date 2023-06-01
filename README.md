@@ -2,7 +2,7 @@
 - 👀 I’m interested in to be cs expert
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on any group that we are in the same field
-- 📫 How to reach me,
+- 📫  Reach me out,
 - Ahmeddigale2233@gmail.com
 
 <!---
